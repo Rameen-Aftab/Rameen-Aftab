@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Rameen-Aftab
+- 👀 I’m interested in lanuage and scientific learning
+- 🌱 I’m currently learning html
+- 📫 How to reach me rameena545@gmail.com
+- ❤ My hobbies are cooking, playing badminton and exploring the world around me
